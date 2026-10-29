@@ -1,2 +1,2 @@
 # CV
-This CV was last updated in April 2026.
+This CV was last updated in October 2026.
